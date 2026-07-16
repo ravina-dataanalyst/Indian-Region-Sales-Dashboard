@@ -39,3 +39,4 @@ Data Analyst with 4.6 years IT experience.
 Open to remote freelance Data Analyst projects.
 📧 ravinagujar66@gmail.com
 🔗 linkedin.com/in/ravina-g-50b825b2
+🔗 Hire me on Fiverr: https://www.fiverr.com/s/5rw38w4
